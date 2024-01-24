@@ -113,3 +113,23 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Chocolate Mousse
+
+Ingredients:
+- 3 tbsp unsalted butter
+- 3/4 cup semisweet chocolate
+- 3 large eggs, room temperature, yolks and whites separated
+- 1/2 tsp cream of tartar
+- 1/4 cup plus 2 tbsp sugar
+- 1/2 cup heavy cream, cold
+- 1/2 tsp vanilla extract
+
+Instructions:
+1. Melt butter and chocolate in microwave or using a double boiler until 75% melted, stirring in 20-second intervals. 
+2. Let it cool, then whisk in egg yolks one at a time.
+3. In a separate bowl, beat egg whites with cream of tartar and ¼ cup sugar until stiff peaks form.
+4. Fold egg whites into chocolate mixture.
+5. In another bowl, beat heavy cream with 2 tablespoons sugar and vanilla until medium peaks form.
+6. Fold whipped cream into chocolate mixture.
+7. Divide the mousse into 6 glasses, cover, and chill for at least 2 hours.
