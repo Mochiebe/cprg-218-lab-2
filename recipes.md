@@ -20,6 +20,7 @@ Ingredients:
 - 1 cup grated Parmesan cheese
 - 1/2 cup shredded mozzarella cheese
 - 2 cloves garlic, minced
+- 1/4 tsp smoked paprika
 
 Instructions:
 1. Preheat oven to 350°F.
